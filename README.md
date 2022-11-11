@@ -1,1 +1,15 @@
-# goit-markup-hw-01
+https://youtu.be/HqIAe1dM_Tg
+https://youtu.be/MX7l98im5AY
+https://youtu.be/NmcAmNhw8WA
+https://youtu.be/_bHmm-boYXk
+https://youtu.be/-SyIRgezwSk
+https://youtu.be/D4MkXvBRzRM
+https://youtu.be/c_tFPxS72ZY
+https://youtu.be/GwFBR7tHksI
+https://youtu.be/Rac4zX7X_Zw
+https://youtu.be/AdLvsfwo0Yg
+https://youtu.be/0F6X8F3qT7c
+https://youtu.be/-l4IuVcAggA
+https://youtu.be/c1VnY-kQtL0
+https://youtu.be/88ut58uQTKk
+https://youtu.be/fxDdyRLN9E8
